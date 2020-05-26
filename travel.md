@@ -12,7 +12,7 @@
 I studied abroad in Athens, Greece while in college and attended their CYA program. To check them out click [here](https://www.cyathens.org/)!
 I didn't get to spend as much time exploring the islands as I would have liked. One of my favorite islands that I did get to visit was Sifnos. This was one of my favorite places to visit.
 
-![A small church overlooking the sea](https://theculturetrip.com/europe/greece/articles/the-best-things-to-see-and-do-in-sifnos-greece/)
+![A small church overlooking the sea](https://bestbitsworldwide.com/wp-content/uploads/2014/08/Sifnos-Greece-1.jpg)
 
 ## Domestic Travel...
 * Washington Coast
